@@ -1,4 +1,4 @@
-# 0814
+# 【通证经济治理访谈录（二）】任鑫访谈廖洋阳：理想的公链治理应该是怎样的？
 my blog
 
 ![enter description here](https://static.yaofache.com/f7104f51-e461-43cc-8069-996d3d765abf.png?e=1845253119&token=1pd5YXbBmYR7QQqodYuItP927L99-O4qNLAynsmp:P7HjGTm2SB0W1a3WfcpuQuvg5l0=)
